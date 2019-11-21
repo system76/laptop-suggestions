@@ -4,6 +4,4 @@ Thank you for providing laptop design suggestions! Please file and issue on this
 
 Thanks again!
 
-
-
 The Team @ system76
